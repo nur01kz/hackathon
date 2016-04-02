@@ -2,9 +2,9 @@
 
 
 
-Or view presentation via this link: https://drive.google.com/open?id=0BzMnpRI4ibjwb1pwcUZMcklpSXM
+View presentation here: https://drive.google.com/open?id=0BzMnpRI4ibjwb1pwcUZMcklpSXM
 
-You can download project files via this link: 
+Download project files here: 
 https://drive.google.com/open?id=0BzMnpRI4ibjwR0NkaWV3TW9FN0U
 
 ------------------
